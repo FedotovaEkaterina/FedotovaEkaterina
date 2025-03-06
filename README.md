@@ -2,7 +2,7 @@
 
 **Аналитик данных** | **BI-аналитик**
 📧 shilinaek@yandex.ru | 📞 +7 (909) 088-77-55
-https://t.me/@Ekaterina_Fedotova_123
+https://t.me/Ekaterina_Fedotova_123
 
 **О себе**
 
